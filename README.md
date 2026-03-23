@@ -1,2 +1,0 @@
-# Tumi-
-exercise 2
